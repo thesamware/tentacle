@@ -1,2 +1,2 @@
-# tentacle
-just a imagination for now!
+# Tentacle
+Starting as soon as something click into my mind...
